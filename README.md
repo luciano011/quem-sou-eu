@@ -1,2 +1,2 @@
 # quem-sou-eu
-numa sala de inf rola putaria?
+numa sala inf oq rola?
